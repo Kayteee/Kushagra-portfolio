@@ -1,2 +1,2 @@
-# Kushagra-portfolio
+# Kushagra-Portfolio
 Kushagra Tripathi Portfolio
