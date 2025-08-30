@@ -1,2 +1,1 @@
-# Kushagra-Portfolio
-Kushagra Tripathi Portfolio
+kayteee.github.io
